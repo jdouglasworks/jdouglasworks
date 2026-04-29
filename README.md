@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about cybersecurity, video editing, coding, home networking
 - 📫 How to reach me: dougworks@freeforcharity.org
 - 😄 Education update: I am 2 classes away from completing my master's in cybersecurity from Penn State University
-- ⚡ Fun fact: I own a piece of Trinitite from Alamogordo
+- ⚡ Fun fact: I own a real piece of Trinitite from Alamogordo
 -->
